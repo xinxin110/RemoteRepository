@@ -1,1 +1,1 @@
-hello Word
+今天真好
